@@ -1,2 +1,0 @@
-# AmanBhargava_sntclub
-repositary
